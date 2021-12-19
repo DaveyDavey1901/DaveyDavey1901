@@ -1,5 +1,7 @@
 Find me around the web:
 
-click to view my online [portfolio ](https://daveydavey1901.github.io/ddportfolio/)
+Click to view my online [portfolio ](https://daveydavey1901.github.io/ddportfolio/)
 
-you can also find me on [LinkedIn](www.linkedin.com/in/david-davies-762aa192)
+You can also find me on [LinkedIn](www.linkedin.com/in/david-davies-762aa192)
+
+Or you could always take a quick look at my CV whilst your here [CV](https://drive.google.com/file/d/1iOCQII5avuiw0uqXlAMXsSkG-AvjUMEG/view?usp=sharing)
